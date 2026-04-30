@@ -11,3 +11,5 @@ Schließlich erreichte Markus einen versteckten Raum im Dungeon, in dem ein myst
 Erfrischt und gestärkt machte sich Markus auf den Weg, um die letzte Etappe seiner Quest zu erfüllen. Er kämpfte gegen eine Horde von untoten Kreaturen und bestand Prüfungen, die kaum ein anderer Held überlebt hätte.
 
 Nach seinem grandiosen Kampf fiel Markus erschöpft zu boden, glücklich darüber noch am Leben zu sein. Das Amulet welches er suchte, war immer außerhalb seiner Reichweite. Markus rafte sich vom boden auf und suchte sich einen sicheren Platz, um eine Pause einzuschlagen, bevor er sich tiefer in den Dungdeon begeben würde.
+
+Doch Markus war zu erschöpft und er konnte seine Augen nicht Lange offen halten. Stunden vergangen während er am Rande des rießigen Raumes in einen Schlaf verfallen war. Langsam schlich sich eine Figur aus dem dunklen an unseren Helden an. Markus hörte eine Stimme und voller schrecken, sprang aus seinem Traum.
